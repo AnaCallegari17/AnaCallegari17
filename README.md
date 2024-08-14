@@ -3,7 +3,7 @@
 - 🌱 Tenho 18 anos de idade 🖤
 - 💞️ Futuramente pretendo estar formada em biomedicina esteta ⚗️
 - 📫 Gosto de passar tempo de qualidade com minha familia, amigos e meu namorado
-- ⚡ Meu filme:Favorito é Hary Potter e minha série favorita é shadowhunters
+- ⚡ Meu filme:Favorito é Hary Potter e minha série favorita é shadowhunters.
 
 
 
